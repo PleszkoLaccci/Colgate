@@ -1,1 +1,1 @@
-# Colgate
+# Kollázs
